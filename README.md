@@ -32,13 +32,3 @@ A detailed budget will be outlined to ensure cost-effective operations, with a f
 
 **Success Metrics:**
 Success will be measured through customer feedback, the frequency of full-house music events, and a steady increase in sales. The aim is to achieve a consistent customer base and become profitable within the first year of operation.
-
-**Contact Information:**
-For further details or to discuss this brief, please contact [Melody's Corner Representative].
-
----
-
-
-(1) 6 big ideas for growing your small-town bar - Singa blog: Avoid Boring .... https://singa.com/blog/small-town-bar-ideas/.
-(2) Client Brief: How to Write (with Examples) | WordLayouts. https://www.wordlayouts.com/free/complete-guide-on-client-brief-with-examples/.
-(3) How to Open a Bar: A Guide to Launching Your Dream Business. https://www.shiftbase.com/blog/how-to-open-a-bar.
